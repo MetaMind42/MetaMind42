@@ -1,1 +1,1 @@
-Medior lawyer for DTC, MarTech and SaaS businesses with SWE background.
+Medior lawyer (in-house) for DTC, MarTech and SaaS businesses with SWE background.
